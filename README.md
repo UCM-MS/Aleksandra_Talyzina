@@ -1,2 +1,2 @@
-Aleksandra Talyzina
-Multimedialne Systemy 08/10/2026
+# Aleksandra Talyzina
+Multimedialne Systemy, 08.10.2026
